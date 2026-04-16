@@ -1,1 +1,1 @@
-# sruthyqa.github.io
+# sruthyscrummaster.github.io
